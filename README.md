@@ -1,0 +1,1 @@
+nit mein khoobsurat ladkiyo ki itni kami kyo h aur average walon ko bhi itna hadd se jyada atttitude kyo h
